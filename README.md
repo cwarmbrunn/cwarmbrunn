@@ -25,7 +25,7 @@ To use my position in technology to help other BIPOC break down the barriers to 
 
 ⚡**My favorite quote** <br>
 
-"Fīat jūstitia ruat cælum" - translation: "Let justice be done though the heavens fall"
+*"Fīat jūstitia ruat cælum"* || *"Let justice be done though the heavens fall"*
 
 <br>
 
