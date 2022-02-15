@@ -2,7 +2,7 @@
 
 <br>
 
-⭐ **Why am I here?** <br>
+✨ **Why am I here?** <br>
 
 I've been looking for new ways to take my Program Manager experiences to the next level and coding has been an amazing outlet and experience for me. I'm eager to learn, evolve, and grow as a developer. 
 
