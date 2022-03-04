@@ -4,7 +4,7 @@ Hi, I’m Christina, my pronouns are she/her/hers! 👋
 
 **Why am I here?** ✨ <br>
 
-I've been looking for new ways to take my Program Manager experiences to the next level and coding has been an amazing outlet and experience for me. I'm eager to learn, evolve, and grow as a developer. 
+I've been looking for new ways to take my Program Manager experiences to the next level and coding made perfect sense given my passions and experiences in Technology. So far, it's been an amazing outlet and experience for me. I'm eager to learn, evolve, and grow as a developer. 
 
 <br>
 
