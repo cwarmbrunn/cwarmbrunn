@@ -33,7 +33,7 @@ To use my position in technology to help other BIPOC break down the barriers to 
 
 Drop me a message request on my [LinkedIn](https://www.linkedin.com/in/christina-warmbrunn/)!
 
-You can also reach me at cwarmbrunn.codes@gmail.com
+You can also reach me at [cwarmbrunn.codes@gmail.com](mailto:cwarmbrunn.codes@gmail.com?subject=Coding Interest)
 
 <!---
 cwarmbrunn/cwarmbrunn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
