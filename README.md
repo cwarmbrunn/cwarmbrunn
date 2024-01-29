@@ -4,14 +4,14 @@ Hi, I’m Christina, my pronouns are she/her/hers! 👋
 
 **Why am I here?** ✨ <br>
 
-I've been looking for new ways to take my Program Manager experiences to the next level and coding made perfect sense given my passions and experiences in Technology. So far, it's been an amazing outlet and experience for me. I'm eager to learn, evolve, and grow as a developer. 
+I've been looking for new ways to take my program management experiences to the next level and coding made perfect sense given my passions and experiences in Technology. So far, it's been an amazing outlet and experience for me. I'm eager to learn, evolve, and grow as a developer. 
 
 <br>
 
 
  **What do I bring to the table?** 💞️ <br>
 
-My work has empowered and inspired team members to develop fantastic products and applications that provide real-world benefits to clients. Leaders and stakeholders have relied on me to analyze data and emerging technology trends to drive innovation best practices internally. 
+The work I do as a program manager supports and enables thousands of Rioters on Technology teams across the globe, empowering them to continue driving innovative work across our games while bringing their most authentic selves to work.
 
 I’m looking to collaborate on exciting projects that promote accessibility and educate others on the intersections between innovative technology and DEI work!
 
